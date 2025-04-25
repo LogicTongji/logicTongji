@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @logic_BG7ZHT
+- 👋 Hi, I’m @Mogic,student of Tongji University
 
