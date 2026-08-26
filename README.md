@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @K3[Fe(CN)6],student of Tongji University
+- 👋 Hi, I’m @K3[Fe(CN)6],student from China
 
